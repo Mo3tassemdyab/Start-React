@@ -13,7 +13,6 @@
 ![startReact2](https://github.com/user-attachments/assets/095280e5-c507-4033-8eea-f627b7c1d651)
 
 4-
-
 ![startReact4](https://github.com/user-attachments/assets/a0fac5cc-8099-4a40-862a-5a172b005cb8)
 
 
